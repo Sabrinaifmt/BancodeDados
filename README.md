@@ -6,6 +6,6 @@ Alunas:
 
 Iryan Nicoli Pereira Medeiros 
 
-Débora Gontijo Barros 
+Débora Adriele Gontijo Barros 
 
 Sabrina Costa Vieira
